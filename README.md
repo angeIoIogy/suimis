@@ -1,1 +1,1 @@
-[i.](https://rentry.co/4kvh) [ii](https://rentry.co/suiicid)
+[i.](https://rentry.co/c2aezwrm) [ii](https://x.com/synsethi)
